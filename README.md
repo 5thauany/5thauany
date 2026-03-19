@@ -3,9 +3,7 @@
 [![MasterHead](https://pin.it/4RIsAdwKi)](5thauany)
 
 ## → Sobre mim;
-• Nome: Thauany Benardes Pereira
-
-• Linguagens atuais: C+
+• Nome: Thauany Benardes Pereira \n • Linguagens atuais: C+
 
 
 
