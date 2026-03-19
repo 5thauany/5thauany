@@ -1,16 +1,13 @@
-## Hi there 👋
+# 💿 | Ola! ^^
 
-<!--
-**5thauany/5thauany** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[![MasterHead](https://pin.it/4RIsAdwKi)](5thauany)
 
-Here are some ideas to get you started:
+## → Sobre mim;
+• Nome: Thauany Benardes Pereira
+• Linguagens atuais: C+
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+## → Redes Sociais  contato;
+[5ttthauany@gmail.com](#my-custom-anchor-point)
