@@ -5,7 +5,7 @@
 ### <span style="color:#F5E8D0">→ Sobre mim;</span>
 • Nome: *Thauany Benardes Pereira*  
 • Linguagens atuais aprendidas: C+  
-• Linguagens que pretento aprender: Python, JavaScript, +
+• Linguagens que pretento aprender: Python, JavaScript, e + outras
 
 ### /ᐠ - ˕ -マ ᶻ 𝗓 𐰁
 
