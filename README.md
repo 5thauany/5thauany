@@ -1,12 +1,12 @@
-# 💿 | Ola! ^^
+# 💿 | Ola estranho! ^^
 
-[![MasterHead](https://pin.it/4RIsAdwKi)](5thauany)
+![Free Banner for Pinterest _ Download Now](https://github.com/user-attachments/assets/35ac99a9-7a0b-426a-96ff-3a6f7a7b99be)
 
 ## → Sobre mim;
-• Nome: Thauany Benardes Pereira \n • Linguagens atuais: C+
-
-
+• Nome: Thauany Benardes Pereira  
+• Linguagens atuais aprendidas: C+  
+• Linguagens que pretento aprender:
 
 
 ## → Redes Sociais  contato;
-[5ttthauany@gmail.com](#my-custom-anchor-point)
+• Gmail: [5ttthauany@gmail.com](#my-custom-anchor-point)
