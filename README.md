@@ -1,5 +1,5 @@
 # ☕ | Ola! ^^ 
-![<img width="1919" height="771" alt="banner gato" src="https://github.com/user-attachments/assets/66ff9cf2-8b20-4036-b895-2dee1e41c9f5" />](https://github.com/user-attachments/assets/35ac99a9-7a0b-426a-96ff-3a6f7a7b99be)
+!<img width="1919" height="771" alt="banner gato" src="https://github.com/user-attachments/assets/66ff9cf2-8b20-4036-b895-2dee1e41c9f5" />
 #
 
 ### <span style="color:#F5E8D0">→ Sobre mim;</span>
