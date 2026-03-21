@@ -10,7 +10,7 @@
 
 ### → Redes Sociais & contatos;
 • Gmail: [5ttthauany@gmail.com](#my-custom-anchor-point)  
-• Instagram: [ ](#my-custom-anchor-point)
+• Instagram: [https://www.instagram.com/n0tyyou/](#my-custom-anchor-point)
 
 #
 ![download (3)](https://github.com/user-attachments/assets/fcf7cc0d-5c91-49a3-8ec1-ff2ee22b2121)
