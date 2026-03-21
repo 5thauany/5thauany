@@ -1,6 +1,6 @@
 # ☕ | Ola! ^^ 
 <img width="1919" height="771" alt="banner gato" src="https://github.com/user-attachments/assets/66ff9cf2-8b20-4036-b895-2dee1e41c9f5" />
-#
+##
 
 ### <span style="color:#F5E8D0">→ Sobre mim;</span>
 • Nome: *Thauany Benardes Pereira*  
