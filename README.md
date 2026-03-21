@@ -5,8 +5,6 @@
 ### <span style="color:#F5E8D0">→ Sobre mim;</span>
 • Nome: *Thauany Benardes Pereira*  
 • Estudos: 2° Ano IFTM [2° T.inf/A]  
-• Linguagens atuais aprendidas: C+  
-• Linguagens que pretento aprender: Python, JavaScript, e + outras
 
 ### /ᐠ - ˕ -マ ᶻ 𝗓 𐰁
 
