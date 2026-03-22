@@ -4,8 +4,8 @@
 #
 
 ### <span style="color:#F5E8D0">→ Sobre mim;</span>
-• Nome: *Thauany Benardes Pereira* 
-• Idade: 16 Anos [08/03]
+• Nome: *Thauany Benardes Pereira*  
+• Idade: 16 Anos [08/03]  
 • Estudos: 2° Ano IFTM [2° T.inf/A]  
 
 ### /ᐠ - ˕ -マ ᶻ 𝗓 𐰁
