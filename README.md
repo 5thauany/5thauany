@@ -14,5 +14,6 @@
 • Instagram: [https://www.instagram.com/n0tyyou/](#my-custom-anchor-point)
 
 #
-![download (3)](https://github.com/user-attachments/assets/fcf7cc0d-5c91-49a3-8ec1-ff2ee22b2121)
+<img width="1919" height="771" alt="banner gato baixo" src="https://github.com/user-attachments/assets/977db92c-91f8-4c8e-bcd8-aee886f8b6d4" />
+
 #
