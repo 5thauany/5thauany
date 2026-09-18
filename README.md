@@ -1,16 +1,16 @@
-# ☕ | Ola! ^^ 
+# 🦢 | Ola! 
 <img width="1919" height="771" alt="banner gato baixo" src="https://github.com/user-attachments/assets/977db92c-91f8-4c8e-bcd8-aee886f8b6d4" />
 
 #
 
-### <span style="color:#F5E8D0">→ Sobre mim;</span>
+### (ﾉ*･ω･)ﾉ  | → Sobre mim;
 • Nome: *Thauany Benardes Pereira*  
 • Idade: 16 Anos [08/03]  
 • Estudos: 2° Ano IFTM [2° T.inf/A]  
 
 ### /ᐠ - ˕ -マ ᶻ 𝗓 𐰁
 
-### → Redes Sociais & contatos;
+### ⌈⌋৲(*￣O￣)  | → Redes Sociais & contatos;
 • Gmail: [5ttthauany@gmail.com](#my-custom-anchor-point)  
 • Instagram: [https://www.instagram.com/n0tyyou/](#my-custom-anchor-point)
 
