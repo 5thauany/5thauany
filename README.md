@@ -1,5 +1,6 @@
 # 🦢 | Ola! 
-<img width="1919" height="771" alt="banner gato baixo" src="https://github.com/user-attachments/assets/977db92c-91f8-4c8e-bcd8-aee886f8b6d4" />
+
+<img width="1280" height="166" alt="tumblr_whitelace" src="https://github.com/user-attachments/assets/0aa782a0-94a7-4e21-95bb-1b83ee49b8f4" />
 
 #
 
